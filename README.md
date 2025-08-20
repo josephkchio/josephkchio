@@ -1,4 +1,4 @@
-### Hello
+### Hello!
 
 I'm Joseph Chio! I'm an undergraduate student at Texas A&M University. I store all of my personal projects on this account. Feel free to reach out to me below!
 
